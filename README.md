@@ -24,6 +24,8 @@ Carros 3
 
 Durante mais uma disputa eletrizante nas pistas, o campeão Relâmpago McQueen acelerou demais e acabou perdendo o controle. Agora, após ter capotando várias vezes e quase ter partido dessa para melhor, o vermelinho vai ter sua vida alterada para sempre. O acidente foi tão grave que, com os estragos, McQueen pode ter que se aposentar de vez.
 
+
+
 ![](https://tenor.com/pt-BR/view/kcorp-karminecorp-karmine-kc-kcbren-gif-20083403)
 
 Deadpool
@@ -37,4 +39,23 @@ hop rebelde sem pascoa
 O coelho Junior sonha em fazer sucesso com a música, mas seu pai, o Coelho da Páscoa, deseja que ele dê continuidade à tradição do feriado, seguida há quatro mil anos. Ao chegar em Hollywood, ele é acidentalmente atropelado por um homem atrapalhado que acaba aceitando ajudar o coelhinho em sua carreira musical. Contudo, Junior não percebe que algo estranho começa a desestabilizar a Ilha de Páscoa.
 
 ![](https://tenor.com/pt-BR/view/easter-bunny-poop-naughty-bunny-hop-movie-funny-easter-gif-17094222852585791745)
+
+transformers 
+
+O destino da humanidade está em jogo quando duas raças de robôs, os Autobots e os vilões Decepticons, chegam à Terra. Os robôs possuem a capacidade de se transformarem em diferentes objetos mecânicos enquanto buscam a chave do poder supremo com a ajuda do jovem Sam.
+
+![](https://tenor.com/pt-BR/view/transformers-bumble-bee-bumblebee-transformers-bumblebee-bumblebee-transformers-gif-7271537408013481176)
+
+Gladiador 
+
+Maximus é um poderoso general romano, amado pelo povo e pelo imperador Marcus Aurelius. Antes de sua morte, o Imperador desperta a ira de seu filho Commodus ao tornar pública a sua predileção em deixar o trono para Maximus. Sedento pelo poder, Commodus mata seu pai, assume a coroa e ordena a morte de Maximus, que consegue fugir antes de ser pego, e passa a se esconder como um escravo e gladiador enquanto vai atrás de vingança.
+
+![](https://tenor.com/pt-BR/view/attacking-lucius-general-acacius-gladiator-ii-fighting-gif-10524916308876891433)
+
+Até o Último Homem
+
+Acompanhe a história de Desmond T. Doss, um médico do exército americano que, durante a Segunda Guerra Mundial, se recusa a pegar em armas. Durante a Batalha de Okinawa ele trabalha na ala médica e salva cerca de 75 homens.
+
+![](https://media1.tenor.com/m/pmrVz2WC4pUAAAAC/drag-struggle.gif)
+
 
