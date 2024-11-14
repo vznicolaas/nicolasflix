@@ -58,4 +58,8 @@ Acompanhe a história de Desmond T. Doss, um médico do exército americano que,
 
 ![](https://media1.tenor.com/m/pmrVz2WC4pUAAAAC/drag-struggle.gif)
 
+O Batman
 
+Após dois anos espreitando as ruas como Batman, Bruce Wayne se encontra nas profundezas mais sombrias de Gotham City. Com poucos aliados confiáveis, o vigilante solitário se estabelece como a personificação da vingança para a população.
+
+![](https://tenor.com/pt-BR/view/the-bat-signal-the-batman-calling-the-batman-we-need-batman-summon-the-batman-gif-23486236)
